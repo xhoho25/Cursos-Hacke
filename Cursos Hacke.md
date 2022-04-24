@@ -1176,5 +1176,3 @@ Drawing Female Characters https://t.me/c/1660818011/4829
 Diseño de interiores de principio a fin https://t.me/c/1660818011/4831
 
 Diseño de interiores, Creando la identidad de un espacio https://t.me/c/1660818011/4833
-
-Domestika Iniciación al d
