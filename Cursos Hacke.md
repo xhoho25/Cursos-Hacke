@@ -6,6 +6,181 @@ https://t.me/Hackeroto Miles de cursos de Udemy, Platzi, EDteam entre miles de p
 aqui tendreis los cursos disponibles para tener alguno ya sea por telegram o un metodo me escriben al privado @Hackeroto en telegram https://t.me/Hackeroto
 
 
+Curso de Canva 2021 (UDEMY) https://t.me/c/1660818011/15599
+
+Experto en Diseño Gráfico Creativo con Canva (UDEMY) https://t.me/c/1660818011/15603
+
+Curso de Canva - Diseño Gráfico con Canva desde 0 a experto (UDEMY) https://t.me/c/1660818011/15606
+
+Máster en Base de Datos SQL desde 0 hasta Avanzado +Hacking! (UDEMY)  https://t.me/c/1660818011/15609
+
+CURSO CSS3 [Aprende y DOMINA CSS3 desde cero a avanzado] (UDEMY)  https://t.me/c/1660818011/15626
+
+React - Guía definitiva: hooks router redux next +Proyectos (UDEMY)  https://t.me/c/1660818011/15635
+
+CSS La Guía Completa - Flexbox, CSS Grid, SASS +20 proyectos (UDEMY) https://t.me/c/1660818011/15655
+
+Creación y Consumo de Web Service SOAP WDSL con PHP y MySQL (UDEMY) https://t.me/c/1660818011/15685
+
+React desde cero version 2022 (UDEMY) https://t.me/c/1660818011/15687 
+
+Software Testing desde Cero : MasterClass todo en 1 (2022) (UDEMY)  https://t.me/c/1660818011/15698
+
+MÁSTER en Penetration Testing y Ethical Hacking con Python 3 (UDEMY) https://t.me/c/1660818011/15707
+
+Python 3: Crea tu primer juego con Pygame (UDEMY) https://t.me/c/1660818011/15728
+
+Python TOTAL - Programador Avanzado en 16 días (UDEMY) https://t.me/c/1660818011/15734
+
+Curso Mecánica de Bicicletas https://t.me/c/1660818011/15751
+
+¡Linux de Noob a Pro en 9 horas!  https://t.me/c/1660818011/15752
+
+Como hacer mi web una muralla ante los ataques informáticos - (Udemy)  https://t.me/c/1660818011/15753
+
+Nutrición saludable Alimenta una vida mejor (UDEMY) https://t.me/c/1660818011/15754
+
+Next.js: El framework de React para producción (UDEMY) https://t.me/c/1660818011/15756 
+
+Django, Postgres y Angular | Integracion Fullstack (UDEMY) https://t.me/c/1660818011/15781
+
+
+Curso de Hacking Ético Parrot (UDEMY) https://t.me/c/1660818011/15808
+
+Curso de Informática Forense (UDEMY) https://t.me/c/1660818011/15809
+
+Curso de Reparacion de TV Nivel 1 (UDEMY) https://t.me/c/1660818011/15811
+
+Blackmagic Design DaVinciResolve Studio17.4.5 (UDEMY) https://t.me/c/1660818011/15813
+
+GraphQL with React & Node js - Real Time Private Chat App (Udemy) https://t.me/c/1660818011/15815
+
+Artificial Intelligence for Business (Udemy) https://t.me/c/1660818011/15817
+
+Tensorflow 2.0 Deep Learning and Artificial Intelligence (Udemy) https://t.me/c/1660818011/15822
+
+Curso de Inteligencia Emocional (Platzi) https://t.me/c/1660818011/15826
+
+C121_Curso de Probabilidad y Estadística (Platzi) https://t.me/c/1660818011/15827
+
+Angular11 + Ionic 6 Crea Apps para negocios en Firebase (UDEMY) https://t.me/c/1660818011/15865
+
+Microservicios con Spring Boot y Spring Cloud Netflix Eureka (UDEMY) https://t.me/c/1660818011/15882
+
+Curso de Reparación de Discos Duros y Recuperación de Datos (UDEMY) https://t.me/c/1660818011/15898
+
+API Testing con POSTMAN : QA y automatización paso a paso (UDEMY) https://t.me/c/1660818011/15901
+
+Curso de React De cero a experto Hooks y MERN FH 2022 (UDEMY) fernando herrera https://t.me/c/1660818011/15931
+
+Curso de Cejas microblading https://t.me/c/1660818011/15953
+
+Creación de videojuegos y monetización para móvil en unity (UDEMY) https://t.me/c/1660818011/15944
+
+Curso de Freelance https://t.me/c/1660818011/15956
+
+Curso para realizar Hamburguesas https://t.me/c/1660818011/15959
+
+Curso de Guitarra https://t.me/c/1660818011/15962
+
+Curso de defensa personal infanti https://t.me/c/1660818011/15969
+
+Curso de fotografias de bodas https://t.me/c/1660818011/15971
+
+Curso de Electronica https://t.me/c/1660818011/15974
+
+Curso de Seduccion https://t.me/c/1660818011/15977
+
+Curso Educacion para Caninos https://t.me/c/1660818011/15981
+
+Curso Defensa Personal Femenino https://t.me/c/1660818011/15984
+
+Curso de finanzas https://t.me/c/1660818011/15986
+
+Curso de HTML y CSS https://t.me/c/1660818011/15988
+
+Curso para aprender Frances https://t.me/c/1660818011/15990
+
+Curso para crear una pagina web desde cero https://t.me/c/1660818011/15992
+
+Curso de carpinteria en aluminio https://t.me/c/1660818011/15998
+
+Curso de Magia https://t.me/c/1660818011/16000
+
+Curso de Jardineria https://t.me/c/1660818011/16006
+
+Curso de Diseño Grafico para redes sociales https://t.me/c/1660818011/16012
+
+Curso para aprender Coreano https://t.me/c/1660818011/16017
+
+Curso de Adobe Photoshop https://t.me/c/1660818011/16019
+
+Curso de carpinteria en maderas https://t.me/c/1660818011/16023
+
+Curso de Cerrajeria https://t.me/c/1660818011/16025
+
+Curso crear aplicaciones con Java Web https://t.me/c/1660818011/16027
+
+Curso avanzado de Impresion 3D https://t.me/c/1660818011/16029
+
+Libros de recetas vegetarianas y veganas https://t.me/c/1660818011/16032
+
+Curso fabricar ropa para Perros https://t.me/c/1660818011/16034
+
+Curso de Parrillas y Cocinas https://t.me/c/1660818011/16036
+
+Curso de Panadería https://t.me/c/1660818011/16038
+
+Curso Hacking Android avanzado https://t.me/c/1660818011/16040
+
+Curso El Libro Negro del Hacker https://t.me/c/1660818011/16042
+
+Linux de Noob a Pro en 9 horas mastermind https://t.me/c/1660818011/16044
+
+Curso de reparacion de ps1, ps2, nintendo, sega https://t.me/c/1660818011/16046
+
+Curso de reparacion de Electrodomesticos https://t.me/c/1660818011/16056
+
+Curso de Corte y Costura https://t.me/c/1660818011/16060
+
+Curso de Fotografia https://t.me/c/1660818011/16063
+
+Curso de fabricacion de Carteras y Bolsos https://t.me/c/1660818011/16067
+
+Curso mecánica de Motos https://t.me/c/1660818011/16069
+
+¿Cómo elegir tu computadora ideal? https://t.me/c/1660818011/16071
+
+Curso de electricista domiciliario https://t.me/c/1660818011/16073
+
+Curso de Plomeria Gratis https://t.me/c/1660818011/16075
+
+Curso de Albañilería https://t.me/c/1660818011/16078
+
+Curso de reparación de Bicicletas https://t.me/c/1660818011/16081
+
+Curso para reparar Impresoras https://t.me/c/1660818011/16083
+
+Deep Web y Dark Web curso completo https://t.me/c/1660818011/16087
+
+Curso de reparacion de Heladeras https://t.me/c/1660818011/16090
+
+Curso de Pasteleria https://t.me/c/1660818011/16092
+
+Curso de reparacion de ps3, ps4 y Xbox https://t.me/c/1660818011/16094
+
+Curso para adelgazar rapido y sin tantas complicaciones https://t.me/c/1660818011/16099
+
+Curso se un experto en Aire Acondicionado, desde cero https://t.me/c/1660818011/16102
+
+Curso de PowerPoint https://t.me/c/1660818011/16108
+
+Curso para elaborar PIZZA https://t.me/c/1660818011/16110
+
+Curso de Mecanica y Diagnostico Automotriz https://t.me/c/1660818011/16114
+
+Curso para ser Tecnico en Computadoras https://t.me/c/1660818011/16117
+
 Domestika Motion graphics para redes sociales: crea un pack de stickers  https://t.me/c/1660818011/625
 
 Máster en desarrollo Front End con Bootstrap 4 WP y Angular https://t.me/c/1660818011/627
