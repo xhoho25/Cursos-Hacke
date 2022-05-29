@@ -5,7 +5,10 @@ https://t.me/Hackeroto Miles de cursos de Udemy, Platzi, EDteam entre miles de p
 # Hacke-cursos
 aqui tendreis los cursos disponibles para tener alguno ya sea por telegram o un metodo me escriben al privado @Hackeroto en telegram https://t.me/Hackeroto
 
-
+## Cursos Hacke
+* [Curso ser gay](http://blabla)
+* [Curso ser gay 2](http://blabla)
+* [Curso ser gay 3](http://blabla)
 Curso de Canva 2021 (UDEMY) https://t.me/c/1660818011/15599
 
 Experto en Diseño Gráfico Creativo con Canva (UDEMY) https://t.me/c/1660818011/15603
